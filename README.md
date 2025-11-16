@@ -1,2 +1,1 @@
-https://cdn.discordapp.com/attachments/1437223055637221376/1439641512550994000/IMG-20251116-WA0008.jpg?ex=691b4223&is=6919f0a3&hm=396ac4db5013b5a3f909c1bcf0663515c17f7c19b3b1cdcb274e371f84af33b
-
+https://files.catbox.moe/k1xk1l.jpg
