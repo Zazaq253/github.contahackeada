@@ -8,4 +8,4 @@
 
 
 
-                       https://files.catbox.moe/k1xk1l.jpg
+                      https://discord.com/channels/@me/1437223055637221376/1439641512806715553
